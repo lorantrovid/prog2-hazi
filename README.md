@@ -1,1 +1,1 @@
-# prog2-hazi
+# Rövid Lóránt - LPJA6E
